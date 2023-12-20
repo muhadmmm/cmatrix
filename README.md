@@ -14,6 +14,6 @@ Key Features:
 
 Whether you're a coder, Matrix aficionado, or simply seeking a futuristic backdrop, the Matrix Digital Rain Live Wallpaper is the ideal choice.
 
-#GitHub #MatrixEffect #Cyberpunk #CodingAesthetics #DigitalArt #LiveWallpaper #WebDevelopment
+#GitHub #MatrixEffect #Cyberpunk #CodingAesthetics #DigitalArt #LiveWallpaper #WebDevelopment #cmatrix #hacker #hackertheme
 
 Elevate your GitHub presence with this visually stunning Matrix digital rain animation. Download or embed now for a cyberpunk-inspired journey through code aesthetics. Unlock the potential of your repository with this dynamic and captivating live wallpaper. 🚀✨
